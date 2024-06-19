@@ -1,0 +1,1 @@
+To improve marketing strategies, analyze customer shopping habits at the mall based on factors like age, income, and spending to identify target customers who are more likely to be easily converted. Understanding these customers will help tailor campaigns effectively for increased sales and success.
